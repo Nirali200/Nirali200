@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **darjinirali08@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bJcfByw1aMFNglvJEnYSNORWO6-Z64KH/view?usp=sharing](https://drive.google.com/file/d/1bJcfByw1aMFNglvJEnYSNORWO6-Z64KH/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yliqqgGwAsQMHdKzP_icV3ytyHpk0CRw/view?usp=drive_link)
 
 # 🤝 Connect With Me:
 <p align="left">
